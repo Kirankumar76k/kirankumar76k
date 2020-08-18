@@ -6,6 +6,6 @@ Here are some ideas to get you started:
 - 👯 I’m looking to collaborate on ... Java
 - 🤔 I’m looking for help with ... python
 - 💬 Ask me about ... Anything
-- 📫 How to reach me: ...[Insta](https://www.instagram.com/__imkiran__/)
+- 📫 How to reach me: ...[Insta](https://www.instagram.com/ImJuzKiran/)
 - Artist🎨🤘
 - 🤗Extroverted Introvert!😐
