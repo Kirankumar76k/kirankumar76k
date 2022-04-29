@@ -1,4 +1,6 @@
-### Hi there I'm Kiran 👋
+### Hi 👋 I'm Kiran Kumar
+
+<p align="left"> <img src="https://komarev.com/ghpvc/?username=kirankumar76k&label=Profile%20views&color=0e75b6&style=flat" alt="kirankumar76k" /> </p>
 
 Here are some ideas to get you started:
 
